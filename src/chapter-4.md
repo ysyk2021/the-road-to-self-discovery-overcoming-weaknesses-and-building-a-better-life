@@ -1,4 +1,4 @@
-Chapter: Using Self-Assessment Tools
+Using Self-Assessment Tools
 ====================================
 
 Using self-assessment tools is an effective way to gain insight into oneself and identify areas for personal growth and development. In this chapter, we'll explore different self-assessment tools and their applications, including personality tests, analyzing personal values and beliefs, and conducting a SWOT analysis for personal development.

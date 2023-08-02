@@ -1,7 +1,7 @@
 The Road to Self-Discovery: Overcoming Weaknesses and Building a Better Life
 ============================================================================
 
-Chapter 6: Fostering Accountability and Motivation
+Fostering Accountability and Motivation
 --------------------------------------------------
 
 In this chapter, we delve into the importance of fostering accountability and motivation in the journey of self-discovery. By taking ownership of our actions, staying motivated, and setting meaningful goals, we can overcome weaknesses, stay on track, and build a better life.

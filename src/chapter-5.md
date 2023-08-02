@@ -1,4 +1,4 @@
-Chapter: Building Effective Habits
+Building Effective Habits
 ==================================
 
 Building effective habits is essential for personal growth and self-discovery. In this chapter, we'll explore how to identify habits that support personal growth and development, break bad habits and develop new ones, create a daily routine that supports self-discovery, and foster accountability and motivation.

@@ -1,4 +1,4 @@
-Chapter 7: Using Personality Tests to Identify Strengths and Weaknesses
+Using Personality Tests to Identify Strengths and Weaknesses
 =======================================================================
 
 In this chapter, we will explore the use of personality tests as a tool for self-discovery, identifying strengths, weaknesses, and building a better life. Personality tests provide valuable insights into our unique characteristics, preferences, and tendencies. Understanding these aspects of ourselves can help us make informed decisions, leverage our strengths, and address our weaknesses more effectively.

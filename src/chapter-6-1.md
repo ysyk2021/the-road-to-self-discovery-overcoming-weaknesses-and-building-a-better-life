@@ -1,4 +1,4 @@
-Chapter 5: Identifying Common Obstacles to Personal Growth
+Identifying Common Obstacles to Personal Growth
 ==========================================================
 
 In this chapter, we will explore common obstacles that often hinder personal growth on the road to self-discovery and building a better life. Recognizing these obstacles is essential as it allows us to proactively address and overcome them. By understanding the challenges that may arise during our journey, we can develop strategies to navigate past them and continue our path towards personal growth and fulfillment.

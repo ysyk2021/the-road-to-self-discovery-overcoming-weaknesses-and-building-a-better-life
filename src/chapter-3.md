@@ -1,4 +1,4 @@
-Chapter: Developing a Growth Mindset for Self-Discovery
+Developing a Growth Mindset for Self-Discovery
 =======================================================
 
 Developing a growth mindset is essential for self-discovery and personal growth. In this chapter, we'll explore how to cultivate a mindset that embraces self-discovery and overcomes defensiveness and resistance to feedback.

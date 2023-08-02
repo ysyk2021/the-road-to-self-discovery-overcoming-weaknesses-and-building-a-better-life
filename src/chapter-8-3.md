@@ -1,7 +1,7 @@
 The Road to Self-Discovery: Overcoming Weaknesses and Building a Better Life
 ============================================================================
 
-Chapter 11: Sustaining the Growth Mindset Over Time
+Sustaining the Growth Mindset Over Time
 ---------------------------------------------------
 
 In this chapter, we explore the importance of sustaining a growth mindset over time in the journey of self-discovery. By consistently nurturing and reinforcing our growth mindset, we can overcome challenges, embrace learning opportunities, and continue building a better life.

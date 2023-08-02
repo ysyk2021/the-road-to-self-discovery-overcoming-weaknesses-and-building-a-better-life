@@ -1,4 +1,4 @@
-Chapter: Nurturing Sustainable Growth
+Nurturing Sustainable Growth
 =====================================
 
 Nurturing sustainable growth involves incorporating ongoing personal and professional development into daily life, maintaining balance between different areas of life, and sustaining the growth mindset over time. In this chapter, we'll explore these concepts in more detail.

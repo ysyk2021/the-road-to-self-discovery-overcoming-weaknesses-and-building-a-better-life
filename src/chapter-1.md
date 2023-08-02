@@ -1,4 +1,4 @@
-Chapter: Introduction
+Introduction
 =====================
 
 Self-discovery is a journey towards personal growth and self-improvement. In this book, we'll explore various techniques and strategies for overcoming weaknesses and building a better life through self-discovery.

@@ -1,4 +1,4 @@
-Chapter 12: Conducting a SWOT Analysis for Personal Development
+Conducting a SWOT Analysis for Personal Development
 ===============================================================
 
 In this chapter, we will explore the power of conducting a SWOT analysis as a tool for personal development on the road to self-discovery and building a better life. A SWOT analysis helps individuals gain insights into their strengths, weaknesses, opportunities, and threats, allowing them to make informed decisions, set goals, and maximize their personal growth potential.

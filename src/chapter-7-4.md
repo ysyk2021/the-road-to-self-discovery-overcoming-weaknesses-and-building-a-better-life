@@ -1,7 +1,7 @@
 The Road to Self-Discovery: Overcoming Weaknesses and Building a Better Life
 ============================================================================
 
-Chapter 8: Practicing Self-Care and Stress Management
+Practicing Self-Care and Stress Management
 -----------------------------------------------------
 
 In this chapter, we delve into the importance of self-care and stress management in the journey of self-discovery. By prioritizing our well-being, nurturing our physical and mental health, and effectively managing stress, we can overcome weaknesses, maintain balance, and build a better life.

@@ -1,7 +1,7 @@
 The Road to Self-Discovery: Overcoming Weaknesses and Building a Better Life
 ============================================================================
 
-Chapter 7: Setting Goals and Creating Action Plans
+Setting Goals and Creating Action Plans
 --------------------------------------------------
 
 In this chapter, we delve into the process of setting meaningful goals and crafting action plans to bring about positive change in our lives. By combining self-reflection with strategic planning, individuals can navigate their journey of self-discovery, overcome weaknesses, and create a better and more fulfilling life.

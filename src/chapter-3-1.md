@@ -1,7 +1,7 @@
 The Road to Self-Discovery: Overcoming Weaknesses and Building a Better Life
 ============================================================================
 
-Chapter 9: Cultivating a Mindset That Embraces Self-Discovery
+Cultivating a Mindset That Embraces Self-Discovery
 -------------------------------------------------------------
 
 In this chapter, we explore the importance of cultivating a mindset that embraces self-discovery in the journey of personal growth. By adopting a curious, open-minded, and growth-oriented mindset, we can navigate challenges, learn from experiences, and build a better life.

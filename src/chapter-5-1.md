@@ -1,7 +1,7 @@
 The Road to Self-Discovery: Overcoming Weaknesses and Building a Better Life
 ============================================================================
 
-Chapter 5: Identifying Habits That Support Personal Growth and Development
+Identifying Habits That Support Personal Growth and Development
 --------------------------------------------------------------------------
 
 In this chapter, we delve into the importance of identifying and cultivating habits that support personal growth and development. By recognizing and intentionally adopting habits that align with our goals, values, and aspirations, we can overcome weaknesses, enhance productivity, and create a better life for ourselves.

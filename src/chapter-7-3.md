@@ -1,7 +1,7 @@
 The Road to Self-Discovery: Overcoming Weaknesses and Building a Better Life
 ============================================================================
 
-Chapter 6: Developing Emotional Regulation Skills
+Developing Emotional Regulation Skills
 -------------------------------------------------
 
 In this chapter, we explore the importance of developing emotional regulation skills as a key component of the journey towards self-discovery and personal growth. By understanding and effectively managing our emotions, we can overcome weaknesses, enhance relationships, and create a better life for ourselves.
