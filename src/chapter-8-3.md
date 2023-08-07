@@ -1,9 +1,6 @@
 Sustaining the Growth Mindset Over Time
 ==================================================
 
-Introduction
-------------
-
 In our journey towards self-discovery and personal growth, developing a growth mindset is crucial. It empowers us to overcome weaknesses and build a better life. However, sustaining this mindset over time requires consistent effort and dedication. In this chapter, we will explore effective strategies to maintain and strengthen our growth mindset in the long run.
 
 Cultivating Resilience

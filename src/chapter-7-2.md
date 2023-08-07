@@ -1,7 +1,7 @@
 Setting Goals and Creating Action Plans
 ==================================================
 
-*The journey to self-discovery begins with setting goals and creating action plans. By identifying what we want to achieve and outlining the steps to get there, we can pave the way for a better life. In this chapter, we will explore the importance of goal-setting and how to create effective action plans.*
+The journey to self-discovery begins with setting goals and creating action plans. By identifying what we want to achieve and outlining the steps to get there, we can pave the way for a better life. In this chapter, we will explore the importance of goal-setting and how to create effective action plans.
 
 Introduction
 ------------
