@@ -1,5 +1,3 @@
-Creating a Daily Routine that Supports Self-Discovery
-=================================================================
 
 In this chapter, we will explore the importance of creating a daily routine that supports self-discovery. A well-designed routine can provide structure, focus, and consistency in your life, allowing you to prioritize self-discovery and build a better life. By incorporating intentional activities and habits into your daily routine, you can explore your passions, develop new skills, and cultivate self-awareness.
 

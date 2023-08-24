@@ -1,5 +1,3 @@
-Overcoming Defensiveness and Resistance to Feedback
-============================================================================================================
 
 Developing a growth mindset is essential for self-discovery and personal growth. In this chapter, we'll explore how to develop a growth mindset by overcoming defensiveness and resistance to feedback.
 

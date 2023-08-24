@@ -1,5 +1,3 @@
-Breaking Bad Habits and Developing New Ones
-===============================================================================
 
 Breaking bad habits and developing new ones is essential for personal growth and self-discovery. In this chapter, we'll explore how to break bad habits and develop new ones.
 

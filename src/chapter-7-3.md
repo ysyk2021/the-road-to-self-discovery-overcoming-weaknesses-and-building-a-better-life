@@ -1,5 +1,3 @@
-Developing Agile Mindset as a Leader
-=============================================
 
 In today's rapidly changing and uncertain business landscape, leaders must possess an agile mindset to effectively navigate through challenges and drive success. An agile mindset allows leaders to embrace change, adapt quickly, and continuously learn and grow. In this chapter, we will explore the key principles and strategies for developing an agile mindset as a leader.
 

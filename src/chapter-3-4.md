@@ -1,5 +1,3 @@
-Practicing Self-Reflection and Self-Awareness
-======================================================================================================
 
 Developing a growth mindset is essential for self-discovery and personal growth. In this chapter, we'll explore how to practice self-reflection and self-awareness to cultivate a growth mindset.
 
