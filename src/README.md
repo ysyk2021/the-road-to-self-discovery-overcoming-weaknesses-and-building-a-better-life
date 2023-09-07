@@ -9,3 +9,7 @@ Through this book, readers will gain valuable insights and tools for personal gr
 Join us on the road to self-discovery and personal growth, and embark on a journey towards a better life.
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng
